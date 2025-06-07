@@ -1,4 +1,4 @@
-👋 Hi, I'm @Juan09Ma
+👋 Hi, I'm @JuanMa
 - 👀 I'm interested in... Programming, Video Games, Playing Soccer
 - 🌱 I'm currently learning... Philosophy, Science, and Art
 - 💞️ I'm looking to collaborate on... Small Projects
